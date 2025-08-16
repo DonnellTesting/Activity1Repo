@@ -1,5 +1,5 @@
 # Activity1Repo
 
-# Ortega, John Vincent
+# Camullo, Ejl-Jei
 
 # nasusundan po nasic lang mag ja jollibee ako ngayon
