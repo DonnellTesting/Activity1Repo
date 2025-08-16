@@ -1,3 +1,5 @@
 # Activity1Repo
 
-#Put your name here (donnell) - nakakasunod ba, kaya naman ba, Opinion sa subject, etc. 
+# Ortega, John Vincent
+
+# nasusundan po nasic lang mag ja jollibee ako ngayon
